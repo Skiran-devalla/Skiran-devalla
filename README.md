@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Skiran-devalla
 - 👀 I’m interested in Learning new Technologies 
-- 🌱 I’m currently learning Networking Domain
+- 🌱 I’m currently learning Networking Engineering 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me devallasaikirann@gmail.com
 
