@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Skiran-devalla
+- 👋 Hi, I’m Devalla Sai Kiran 
 - 👀 I’m interested in Learning new Technologies 
 - 🌱 I’m currently learning Networking Engineering 
 - 💞️ I’m looking to collaborate on 
